@@ -2,7 +2,7 @@
 🌟 Elden-ring-review 🌟 
 ## 🔍 Overview 
 <p align="center">
-  <img src="https://newworld.video.tm/wp-content/uploads/sites/36/2022/03/ELDEN-RING-CRACK-FREE-DOWNOLOAD-ELDEN-RING-CRACK-160x90.jpg" width="1000">
+  <img src="https://avatars.mds.yandex.net/i?id=79e1221056bca91c2ded7583b1cc86db8a91c531-4956126-images-thumbs&n=13" width="1000">
   </p>
 
 
